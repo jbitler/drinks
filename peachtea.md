@@ -3,5 +3,7 @@
 ## Ingredients
 *peach tea
 * coconut rum
+* ice
+* water
 
 ##
